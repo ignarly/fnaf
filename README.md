@@ -1,2 +1,2 @@
 # fnaf
-only the top 1% can last to 6am
+figure out how the game works by just playing it
